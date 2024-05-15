@@ -1,1 +1,8 @@
-# soli
+![321271843-86706827-56ce-423d-aa54-3cd185ebe0e3](https://github.com/turbor1/soli/assets/155108454/1560a12f-7e22-47d3-bc81-90ba30170f79)
+![321639553-5fc2d37c-c092-47b0-988d-377536d63c36](https://github.com/turbor1/soli/assets/155108454/d229fff5-ac7b-42e0-be01-0ce45df15eee)
+![321250110-8c01e0aa-2974-4590-87f7-e7c630b6d9fa](https://github.com/turbor1/soli/assets/155108454/7ddb26e1-4960-490d-89db-a81bc11b461e)
+![321251616-d6c88ada-d04f-4504-a7c0-071c7430d9cb](https://github.com/turbor1/soli/assets/155108454/32a618c4-3e2e-4dbf-8674-d64842c05bfb)
+![321252549-dfa3b024-cd82-4926-aeba-bd8cdaac14e6](https://github.com/turbor1/soli/assets/155108454/65f5da4b-ea7f-4206-aaa7-17b002a90032)
+![321253293-3a6795ed-2944-42cc-ba11-c5991de3c54b](https://github.com/turbor1/soli/assets/155108454/3b14d002-3a20-483e-8a58-6d14b1d5e1ed)
+![321255492-7970fe7a-cec6-4082-8c97-4c0ded2b2cc5](https://github.com/turbor1/soli/assets/155108454/1f4520d4-2a29-4d80-a625-2e8c1eab15f5)
+![321625084-703fb6aa-b206-43a9-8630-a6ba38f8b96f](https://github.com/turbor1/soli/assets/155108454/d23e42e7-85b7-41a2-9da0-ff560f1c30a4)
